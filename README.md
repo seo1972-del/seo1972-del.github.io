@@ -1,0 +1,1 @@
+# seo1972-del.github.io
